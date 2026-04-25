@@ -1,0 +1,1 @@
+For the other files, like stls, [to Printables](https://www.printables.com/model/1700750-ldr-led-sensor)
